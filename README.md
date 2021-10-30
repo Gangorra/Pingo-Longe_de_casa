@@ -15,6 +15,6 @@ Sua missão é ajudar Pingo a atravessar essas terras selvagens e cheia de perig
 Boa sorte. 😃
 
 
-Link🔗: [Pingo: Longe de casa]()
+Link🔗: [Pingo: Longe de casa](https://gangorra.github.io/Pingo-Longe_de_casa/)
 
-[]()
+[Prévia do jogo]()
