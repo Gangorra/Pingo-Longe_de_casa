@@ -17,4 +17,4 @@ Boa sorte. 😃
 
 Link🔗: [Pingo: Longe de casa](https://gangorra.github.io/Pingo-Longe_de_casa/)
 
-![Prévia do jogo](https://cdn.discordapp.com/attachments/868299459543592962/904133429690511370/ezgif.com-gif-maker.gif)
+![Prévia do jogo](https://cdn.discordapp.com/attachments/868299459543592962/904123004915691530/1.png)
